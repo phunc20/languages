@@ -24,3 +24,12 @@
 - p.15
     - Aber nie, niemals zuvor hatte er sie so ins Bett geshickt wie eben. ~
       But never, never before had he sent her to bed like this.
+- p.34
+    - nicht wahr? ~ pas vrai?
+- p.35
+    - nicken ~ nod
+    - Meggie konnte nicht verhindern, dass ihre Stimme vor Ärger zitterte. ~
+      Meggie ne pouvait empêcher sa voix de trembler de colère.
+
+
+
