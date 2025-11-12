@@ -1,0 +1,3 @@
+- ドライバー n. ~ screw driver
+- ネジ n. ~ screw
+- ぶどうの蔓 n. ~ grapevine

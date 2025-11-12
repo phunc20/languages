@@ -1,0 +1,9 @@
+- ステンレス adj. ~ stainless
+    - ステンレススチール ~ stainless steel
+- 焼肉 [yakiniku] n. ~ barbecue
+- トング [tongu] n. ~ tong
+- テーブル n. ~ table
+- やすく or 易く adj. ~ easy
+- てください ~ please
+- ないでください ~ please don't
+- お子様 [おこさま] n. ~ child, children

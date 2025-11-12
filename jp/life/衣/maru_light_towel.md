@@ -1,0 +1,2 @@
+- 軽い [かるい] adj. light
+- 薄い [うすい] adj. thin
