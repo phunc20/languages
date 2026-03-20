@@ -1,0 +1,4 @@
+- 取り扱い上の注意 [とりあつかいじょうのちゅい] ~ precautions for handling
+    - [HPノートブックの取り扱い上の注意 | 製品カテゴリ | HP Support](https://www.youtube.com/watch?v=zUoti7SYa-Q)
+        - 間違った方法 [まちがったほうほう] ~ wrong method
+    - [暖房器具取扱い上の注意点【火災予防】](https://www.youtube.com/watch?v=4vuhEEyDf78)

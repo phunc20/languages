@@ -1,0 +1,3 @@
+- 石ノ森章太郎 [いしのもりしょうたろう]: original author of kamen rider
+- など ~ ... 等
+- として ~
